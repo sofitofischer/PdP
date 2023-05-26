@@ -1,1 +1,0 @@
-# Pariclaes Funcional
